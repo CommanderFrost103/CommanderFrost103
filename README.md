@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @CommanderFrost103
+- 👀 I’m interested in games and have a passion of proving others wrong and making fixes to the works of those that just make me angry like the hackers of titanfall
+- 🌱 If you want, you can help me in my quest of making a player made patch to the ddos thats on the titanfall games 
+- 💞️ Sadly I use the linux beta on a chromebook but I know that its a start to my quest
+- 📫 How to reach me ... kingdedede103@gmail.com, contact that acount with information on how to make the patch and we may be able to do something
+- Never forget, we have the ability to prove others wrong, and that is my specialty with many things
